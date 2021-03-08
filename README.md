@@ -2,5 +2,5 @@
 
 
 
-Livro de receitas, tá escrito :wave:
+Livro de receitas:wave:
 
